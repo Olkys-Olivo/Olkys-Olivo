@@ -1,4 +1,9 @@
-## Hi there 👋
+## Hi!!
+
+## ✩⸝⸝{🍙} Olkys ♡﹗🗞
+ ## ꒰ ⌕/ ( Dominican 🇩🇴 ) . (she/her) ⟡ ‹𝟹  
+## ୨🐇-﹗(“If you are allergic to a thing, it is best not to put that thing in your mouth, particularly if the thing is cats.”)
+## ― Lemony Snicket, The Wide Window >>> ! 
 
 <!--
 **Olkys-Olivo/Olkys-Olivo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
